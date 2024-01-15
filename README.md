@@ -8,4 +8,4 @@
 
 ## Tu fais partie intégrante de moi, tu es ma moitié et ma confidente. Rien ne peut égaler la place que tu occupes dans mon cœur. Ta valeur est inestimable à mes yeux. Tu es la justification même de mon existence.
 
-## Je te remercie de me rendre heureux, de toute l’épanouissement. J’espère que tu seras celle qui partagera le reste de ma vie, la princesse avec qui je souhaite partager joies et peines.
+## Je te remercie de me rendre heureux, de toute l’épanouissement que tu me procures. J’espère que tu seras celle qui partagera le reste de ma vie, la princesse avec qui je souhaite partager joies et peines.
