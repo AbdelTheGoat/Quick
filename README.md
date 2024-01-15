@@ -1,14 +1,11 @@
 # Ma chère Shaima,
 
-## Tu es ma duo, ma confidente, mon tout. Tu es la personne qui me fait rire et sourire. Tu es la lumière de ma vie, la couleur de mes jours, la musique de mes nuits.
+## Tu es une femme d'une beauté, intelligence et merveille incomparables.  Tu illumines ma vie. Je rêve de toi à chaque instant, je ne veux plus te quitter.
 
-## Je t'aime énormément, plus que les mots ne peuvent le dire. Tu polarises mes pensées, tu occupes mon cœur, tu remplis mon âme. Je ne peux pas passer un jour sans toi, sans entendre ta voix, sans tes bonnes nuits, sans vouloir te faire un gros câlin dans lequel je ne vais plus te relâcher.
+## Tu es ma princesse, ma reine, mon joyau. Mon amour pour toi transcende toute mesure. Tu es la clef de mon bonheur, le sens de ma vie, et la seule raison qui donne un élan à mon existence. Tu es tout pour moi, et bien plus encore.
 
-## Tu es la plus belle chose qui me soit arrivée, le plus beau cadeau que le destin m'ait fait. Tu es ma raison d'être et surtout ma raison de vivre, mon rêve éveillé.
+## Tel un diamant d'une pureté exceptionnelle, ta simplicité, ta sensibilité, ta folie et ta gentillesse sont des caractères qui te définissent comme une personne unique.
 
-## Avant de te rencontrer ma vie n’était que illusoire, tu as donné un sens à celle-ci, en l’embellissant d’un bonheur absolu conquis seulement par ta présence. Ma vie est devenu un chemin que je ne veux parcourir qu’avec toi.
+## Tu fais partie intégrante de moi, tu es ma moitié et ma confidente. Rien ne peut égaler la place que tu occupes dans mon cœur. Ta valeur est inestimable à mes yeux. Tu es la justification même de mon existence.
 
-## Je souhaite être constamment à tes côtés, de te protéger sans cesse, et à te chérir. Je serai là pour te donner un amour sincère qui te fera toujours sentir aimée, appréciée, désirée et admirée. En vérité, je serai là pour honorer la princesse que tu es, avec toute la tendresse que tu mérites.
-
-
-
+## Je te remercie de me rendre heureux, de toute l’épanouissement. J’espère que tu seras celle qui partagera le reste de ma vie, la princesse avec qui je souhaite partager joies et peines.
