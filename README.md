@@ -10,5 +10,5 @@
 
 ## Je souhaite être constamment à tes côtés, de te protéger sans cesse, et à te chérir. Je serai là pour te donner un amour sincère qui te fera toujours sentir aimée, appréciée, désirée et admirée. En vérité, je serai là pour honorer la princesse que tu es, avec toute la tendresse que tu mérites.
 
-## Shaima, je t’aime.
+
 
