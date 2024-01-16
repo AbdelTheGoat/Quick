@@ -1,6 +1,5 @@
-# Ma chère Shaima,
-# Tu es une femme d'une beauté, intelligence et merveille incomparables. Tu illumines ma vie. Je rêve de toi à chaque instant, je ne veux plus te quitter.
-# Tu es ma princesse, ma reine, mon joyau. Mon amour pour toi transcende toute mesure. Tu es la clef de mon bonheur, le sens de ma vie, et la seule raison qui donne un élan à mon existence. Tu es tout pour moi, et bien plus encore.
-# Tel un diamant d'une pureté exceptionnelle, ta simplicité, ta sensibilité, ta folie et ta gentillesse sont des caractères qui te définissent comme une personne unique.
-# Tu fais partie intégrante de moi, tu es ma moitié et ma confidente.
-# Rien ne peut égaler la place que tu occupes dans mon cœur. Ta valeur est inestimable à mes yeux. Tu es la justification même de mon existence.
+Ma cher Shaima,
+
+Tu es l’étoile qui lumière de ma vie, une beauté et intelligence exceptionnelles. L'idée de te quitter n'a plus de place en moi. Tu es ma princesse, tu es mon joyau, tu es ma Shaimou. Mon amour pour toi est absolu, tu es la clef de mon bonheur et le sens de ma vie. Tu es tout pour moi.
+
+Tu es un diamant d’une pureté exceptionnelle et d’une valeur inestimable, ta simplicité, ta sensibilité, ta folie et ta gentillesse te rendent unique. Tu es ma moitié, aucune autre place ne peut égaler celle que tu occupes dans mon cœur et de mes pensées., tu es la justification même de mon existence. Je te remercie pour le bonheur continuel que tu me procures.
